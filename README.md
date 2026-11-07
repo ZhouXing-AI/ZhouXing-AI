@@ -9,7 +9,7 @@
 用设计和产品的视角探索 AI，  
 把想法做成可以使用的东西。
 
-[个人网站](https://zhouxingai.com/) &nbsp;·&nbsp; [X / Twitter](https://x.com/zhouxingai) &nbsp;·&nbsp; [PPT Skill](https://github.com/ZhouXing-AI/zhouxing-ppt-skill)
+[个人网站](https://zhouxingai.com/) &nbsp;·&nbsp; [X / Twitter](https://x.com/zhouxingai) &nbsp;·&nbsp; [抖音](https://www.douyin.com/user/MS4wLjABAAAA0ieQKy0wEo4jFN9ofJugkkMHB1_MXGEnU2BglD6j9QJrSQST-gar5BCX0lNu7nlP) &nbsp;·&nbsp; [小红书](https://www.xiaohongshu.com/user/profile/64abc952000000001c02bf00) &nbsp;·&nbsp; [B站](https://space.bilibili.com/303755174) &nbsp;·&nbsp; [PPT Skill](https://github.com/ZhouXing-AI/zhouxing-ppt-skill)
 
 </div>
 
